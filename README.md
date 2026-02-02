@@ -1,4 +1,6 @@
 ## Hi there..This is Shubham Kakde 👋
+<img width="1280" height="469" alt="Oracle_Logo svg" src="https://github.com/user-attachments/assets/d87a0525-de1f-45ee-af8d-dbf0e861fe37" /> <img width="275" height="183" alt="images (5)" src="https://github.com/user-attachments/assets/37f0f4cb-59e8-4e54-8e8b-555a3accb312" />
+<img width="314" height="160" alt="images (4)" src="https://github.com/user-attachments/assets/87dc29fd-4826-4182-94d1-e96794c79588" />  <img width="225" height="225" alt="images (1)" src="https://github.com/user-attachments/assets/6b008181-e406-4e67-9829-2d0df03e66aa" /> <img width="3000" height="2000" alt="Microsoft_Office-Logo wine" src="https://github.com/user-attachments/assets/d8891b74-d716-4b35-ba63-41b30aa51a8e" /> 
 
 <img width="1350" height="419" alt="Capture" src="https://github.com/user-attachments/assets/935e8799-d039-409c-b717-2524b48ec478" />
 
